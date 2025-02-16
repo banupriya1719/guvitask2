@@ -1,0 +1,6 @@
+![image alt](https://github.com/banupriya1719/guvitask2/blob/main/Screenshot%202025-02-06%20223105.png?raw=true)
+![image alt](https://github.com/banupriya1719/guvitask2/blob/4936aa9c52a57a9bc6b53d3767a2a1a740f8b2e3/Screenshot%202025-02-13%20121030.png)
+![image alt](https://github.com/banupriya1719/guvitask2/blob/main/Screenshot%202025-02-16%20172207.png?raw=true)
+![image alt](https://github.com/banupriya1719/guvitask2/blob/main/Screenshot%202025-02-16%20172225.png?raw=true)
+![image alt](https://github.com/banupriya1719/guvitask2/blob/main/Screenshot%202025-02-16%20172304.png?raw=true)
+![image alt](https://github.com/banupriya1719/guvitask2/blob/main/Screenshot%202025-02-16%20180549.png?raw=true)
